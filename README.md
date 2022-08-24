@@ -1,0 +1,1 @@
+# boredbuddies.github.io
